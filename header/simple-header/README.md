@@ -1,0 +1,1 @@
+Exemplu de header simplu
