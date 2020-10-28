@@ -1,0 +1,1 @@
+Exemplu de bara de navigare
