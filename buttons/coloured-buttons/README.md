@@ -1,0 +1,1 @@
+Exemple de cateva butoane colorate
